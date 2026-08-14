@@ -1,1 +1,4 @@
-# me-in-mark-down
+# me-in-mark-down 
+Dear Mr. Aiello, my name is Josie! 
+My favorite show is **Vampire diaries** and my favorite seasons are season 1 and 2.
+I also play *Soccer*, and the positon I play is right wing. One thing I am most excited for this school year is *Soccer* season and **Halloween**, my favorite holiday is **Halloween** and favorite season is fall because of the cool and refreshing weather. One music genere I listen to most is **RnB**, I have a strong liking for it because this is usually what was played around me when I was younger. I am looking foward to getting to know you, and this class better.
