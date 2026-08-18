@@ -11,4 +11,4 @@ I have only had one pet throughout my lifetime and that would be my white fluffy
 
 ![Click here to see my playlist](https://music.youtube.com/playlist?list=PLcmYxMvMwkRM&si=sxT0Qx1uwdZWf7Xv)
 <img width="407" height="252" alt="image" src="https://github.com/user-attachments/assets/80c03750-a22b-4827-be62-93e9ab881538" />
-These photos all show a little bit about me and my personality and of course my likings.
+These photos all show a little bit about me and my personality and of course my likings. I am super eager to spend the school year with you! please do try your best to help me and make sure I understand the material. Lets make this school year a fun one. Thank you!
