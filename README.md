@@ -5,12 +5,10 @@ I also play *Soccer*, and the positon I play is right wing. One thing I am most 
 
 I have only had one pet throughout my lifetime and that would be my white fluffy dog duke, he has a very bubb;y personality and loves kids. Duke is super affectionate and loving, he loving playing with anyone and adores quality time. 
 
-Favorite songs 
 
-
-||t|t|t|
-|-|-|-|-|
-|t|t|t|t
 
 ![This is my dog Duke, I only have one dog and he is five years old. ](https://eu-central-1.graphassets.com/AnwjgMYRvQfWK3bRPjoq3z/resize=height:608,width:1080/output=format:webp/3tqcoVh1REmdRjCJiTiW)
-![alt text](image.png)
+
+![Click here to see my playlist](https://music.youtube.com/playlist?list=PLcmYxMvMwkRM&si=sxT0Qx1uwdZWf7Xv)
+<img width="407" height="252" alt="image" src="https://github.com/user-attachments/assets/80c03750-a22b-4827-be62-93e9ab881538" />
+These photos all show a little bit about me and my personality and of course my likings.
